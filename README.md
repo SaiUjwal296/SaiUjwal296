@@ -1,6 +1,6 @@
 <h1 align="center">Hi 👋, I'm SaiUjwal</h1>
 - 📫 How to reach me **Venkatajaya953@gmail.com**
-- 
+<br>
 -I am a very fascinating and dictated student seeking an opportunity for an assistantship at the
 university to contribute my Communication and organizational skills
 
