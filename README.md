@@ -4,7 +4,7 @@
 -I am a very fascinating and dictated student seeking an opportunity for an assistantship at the
 university to contribute my Communication and organizational skills
 
-- 📄 Know about my experiences [https://novoresume.com/editor/resume/69aad580-00ca-11ec-a484-a7574394420f](https://novoresume.com/editor/resume/69aad580-00ca-11ec-a484-a7574394420f)
+- 📄 Know about my experiences [Resume.docx]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
